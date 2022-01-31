@@ -1,1 +1,0 @@
-# nubovr.github.io
